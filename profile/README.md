@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://chubby-gf.com/airoleplay">
+<a href="https://chubby-gf.com/aisexting">
   <img src="https://raw.githubusercontent.com/ai-sexting-chat/.github/main/aisexting.jpg" alt="AI Sexting Chat Professional Unfiltered Intimacy Architecture" width="100%" />
 </a>
 
@@ -15,7 +15,7 @@
 </p>
 
 <p>
-  <a href="https://chubby-gf.com/airoleplay">
+  <a href="https://chubby-gf.com/aisexting">
     <img src="https://img.shields.io/badge/START%20CHATTING%20NOW-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Chatting Now" height="45" />
   </a>
 </p>
@@ -84,7 +84,7 @@ Key Architectural Components:
 We have tested dozens of platforms. Here are the ones that actually deliver a professional-grade, unfiltered experience for sexting and adult roleplay.
 
 ### 1. SweetBun - The Virtual Best Friend
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 SweetBun is designed to combat loneliness with genuine, empathetic AI friendship. The platform excels at creating a warm, supportive environment where the AI actively listens and remembers the details of your life.
 
@@ -93,7 +93,7 @@ SweetBun is designed to combat loneliness with genuine, empathetic AI friendship
 - **Best For.** Users seeking a consistent, caring virtual companion to talk to daily.
 
 ### 2. Replika - The Pioneer of AI Companionship
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 Replika is one of the most established names in the industry. It is built around the concept of an AI companion that grows and evolves based on your interactions.
 
@@ -102,7 +102,7 @@ Replika is one of the most established names in the industry. It is built around
 - **Best For.** Users who want a long-term AI companion that feels like a true confidant.
 
 ### 3. Nomi.ai - Your Ideal AI Partner
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 Nomi.ai focuses heavily on deep, meaningful connections. It allows you to create a custom AI partner with specific personality traits, memories, and emotional responses.
 
@@ -111,7 +111,7 @@ Nomi.ai focuses heavily on deep, meaningful connections. It allows you to create
 - **Best For.** Users who want to build a highly personalized, emotionally deep AI partner.
 
 ### 4. ASIOne - Multi-User Chat Experience
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 ASIOne offers a unique twist on AI chat by allowing friends to join automatically. This creates a dynamic, multi-user environment that feels more like a group hangout than a solo chat.
 
@@ -120,7 +120,7 @@ ASIOne offers a unique twist on AI chat by allowing friends to join automaticall
 - **Best For.** Users looking for a more social, dynamic, and unpredictable AI experience.
 
 ### 5. Kindroid - The Next Generation of AI
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 Kindroid is an AI app built for creating customized companions with human-like voices and deep emotional understanding.
 
@@ -129,7 +129,7 @@ Kindroid is an AI app built for creating customized companions with human-like v
 - **Best For.** Users who value realism, voice interaction, and deep, lifelike conversations.
 
 ### 6. Character.AI - The Ultimate Roleplay Platform
-<a href="https://chubby-gf.com/airoleplay">Start Chatting</a>
+<a href="https://chubby-gf.com/aisexting">Start Chatting</a>
 
 Character.AI is the leading platform for chatting with best friends, fictional characters, and historical figures. It is powered by a massive language model.
 
@@ -185,7 +185,7 @@ A: Absolutely. All of them are browser-based and fully responsive. You do not ne
 Explore the best platforms of 2026, hand-picked and ranked by performance, memory, and freedom.
 
 <div align="center">
-<a href="https://chubby-gf.com/airoleplay">
+<a href="https://chubby-gf.com/aisexting">
   <img src="https://img.shields.io/badge/START%20CHATTING%20NOW-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Chatting Now" height="50" />
 </a>
 </div>
